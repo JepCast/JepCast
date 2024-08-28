@@ -2,7 +2,7 @@
 👩🏻‍🎓 I'm studyng Systems engineering </br>
 🎙 I do voice over sometimes just for fun</br>
 📸 Attempt as a photographer in my short free time [@tojef.ff](https://instagram.com/tojef.ff)</br>
-💭 Currently learning about Web development, UI and also German!</br>
+💭 Currently learning about Web development and UI!</br>
 
 
 ## 🌐 Socials:
